@@ -13,3 +13,19 @@
 –☆ i block/hide freely. don't be weird towards me and we're cool :3
 
 –☆ not an irl! just my own person
+
+**statuses**
+
+–☆ c+h - cuddles and hiding encouraged (this is by default unless i'm with friends or have dni in my name)
+
+–☆ w2i - whisper to interact (this is by default unless i'm actively in a conversation)
+
+–☆ dni - do not interact
+
+–☆ iw(e)c - interact with (extra/extreme) caution
+
+–☆ dni - do not interact 
+
+–☆ dniuc - do not interact unless close friend
+
+–☆ nv/sv - nonverbal/semiverbal
