@@ -8,6 +8,8 @@
 
 –☆ happy to interact with both new people and greennames ;; whisper me if i don't reply since i'm usually offtab
 
+–☆ crowns are always welcome! i also enjoy giving crowns to people :D
+
 –☆ please don't take heavy inspo/copy my skins
 
 –☆ i block/hide freely. don't be weird towards me and we're cool :3
