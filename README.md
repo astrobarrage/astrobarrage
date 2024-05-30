@@ -1,6 +1,6 @@
 **info!!**
 
-–☆ astro/rocket, or the name of whatever character skin i'm using ;; he/they & 6teen
+–☆ astro/rocket, or the name of whatever character skin i'm using ;; he/him & 6teen
 
 –☆ i mostly hang around the rblx/p! area
 
