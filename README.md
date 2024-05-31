@@ -14,7 +14,7 @@
 
 –☆ i block/hide freely. don't be weird towards me and we're cool :3
 
-–☆ not an irl! i'm just my own person
+–☆ i'm an intrj, not an irl
 
 **statuses**
 
