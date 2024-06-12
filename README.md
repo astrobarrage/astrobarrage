@@ -14,8 +14,6 @@
 
 –☆ i block/hide freely. don't be weird towards me and we're cool :3
 
-–☆ i'm an intrj, not an irl
-
 **statuses**
 
 –☆ c+h - cuddles and hiding encouraged (this is by default unless i'm with friends or have dni in my name)
