@@ -14,9 +14,9 @@
 
 **statuses**
 
-–☆ c+h - cuddles and hiding encouraged
-
 –☆ w2i - whisper to interact (this is by default unless i'm actively in a conversation)
+
+–☆ c+h - cuddles and hiding encouraged
 
 –☆ iw(e)c - interact with (extra/extreme) caution
 
