@@ -20,8 +20,6 @@
 
 –☆ w2i - whisper to interact (this is by default unless i'm actively in a conversation)
 
-–☆ dni - do not interact
-
 –☆ iw(e)c - interact with (extra/extreme) caution
 
 –☆ dni - do not interact 
