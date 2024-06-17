@@ -1,6 +1,6 @@
 **info!!**
 
-–☆ astro/rocket, or the name of whatever character skin i'm using ;; he/him & 6teen
+–☆ astro/rocket ;; he/him & 6teen
 
 –☆ i mostly hang around the rblx/p! area
 
@@ -22,4 +22,6 @@
 
 –☆ dni - do not interact 
 
-–☆ dniuc - do not interact unless close friend
+–☆ dniuf/dniuc - do not interact unless friend/do not interact unless close friend
+
+–☆ sv/nv - semiverbal/nonverbal
