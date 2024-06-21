@@ -14,6 +14,14 @@
 
 **statuses**
 
+–☆ online - default status, open to int but may still be offtab
+
+–☆ away - self-explanatory, afk or otherwise offtab
+
+–☆ do not disturb - busy/offtab either working on something or playing a game
+
+///
+
 –☆ w2i - whisper to interact (this is by default unless i'm actively in a conversation)
 
 –☆ c+h - cuddles and hiding encouraged
