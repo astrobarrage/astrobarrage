@@ -14,11 +14,11 @@
 
 **statuses**
 
-–☆ online - default status, open to int but may still be offtab
+–☆ online - default status. open to int, but may be offtab
 
-–☆ away - self-explanatory, afk or otherwise offtab
+–☆ away - self-explanatory. afk
 
-–☆ do not disturb - busy/offtab either working on something or playing a game
+–☆ do not disturb - busy/offtab either working on something or playing a game. still open to int through whispers, but my responses may be delayed
 
 ///
 
