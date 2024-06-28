@@ -12,6 +12,8 @@
 
 –☆ i block/hide freely. don't be weird towards me and we're cool :3
 
+–☆ i don't roleplay on pt (outside of silly bits with friens), so please don't ask me to 
+
 **statuses**
 
 –☆ online - default status. open to int, but may be offtab
