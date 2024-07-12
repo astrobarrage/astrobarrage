@@ -1,7 +1,5 @@
 **info!!**
 
-–☆ astro/rocket ;; he/him & 6teen
-
 –☆ i mostly hang around the rblx/p! area
 
 –☆ happy to interact with both new people and greennames ;; whisper me if i don't reply since i'm usually offtab
