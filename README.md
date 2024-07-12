@@ -2,7 +2,7 @@
 
 –☆ i mostly hang around the rblx/p! area
 
-–☆ happy to interact with both new people and greennames ;; whisper me if i don't reply since i'm usually offtab
+–☆ happy to interact with both new people and greennames! whisper me if i don't reply since i'm usually offtab
 
 –☆ crowns are always welcome! i also enjoy giving crowns to people :D
 
@@ -10,7 +10,7 @@
 
 –☆ i block/hide freely. don't be weird towards me and we're cool :3
 
-–☆ i don't roleplay on pt (outside of silly bits with friens), so please don't ask me to 
+–☆ i don't roleplay on pt (outside of silly bits with friends), so please don't ask me to 
 
 **statuses**
 
