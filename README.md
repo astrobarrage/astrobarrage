@@ -2,7 +2,7 @@
 
 –☆ i mostly hang around the rblx/p! area
 
-–☆ happy to interact with both new people and greennames! whisper me if i don't reply since i'm usually offtab
+–☆ whisper to interact because i'm most likely offtab unless i'm actively in a conversation
 
 –☆ crowns are always welcome! i also enjoy giving crowns to people :D
 
@@ -14,22 +14,17 @@
 
 **statuses**
 
-–☆ online - default status. open to int, but may be offtab
+–☆ online - open to int, but may be offtab
 
-–☆ away - self-explanatory. afk
+–☆ away - self-explanatory, afk
 
 –☆ do not disturb - busy/offtab either working on something or playing a game. still open to int through whispers, but my responses may be delayed
 
 ─── ⋆⋅☆⋅⋆ ───
+**misc. statuses you may see in my name**
 
-–☆ w2i - whisper to interact (this is by default unless i'm actively in a conversation)
+–☆ iwc/iwec - interact with caution/interact with extra caution
 
-–☆ c+h - cuddles and hiding encouraged
-
-–☆ iw(e)c - interact with (extra/extreme) caution
-
-–☆ dni - do not interact 
-
-–☆ dniuf/dniuc - do not interact unless friend/do not interact unless close friend
+–☆ dniuc - do not interact unless close
 
 –☆ sv/nv - semiverbal/nonverbal
