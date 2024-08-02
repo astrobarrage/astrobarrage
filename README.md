@@ -21,6 +21,7 @@
 –☆ do not disturb - busy/offtab either working on something or playing a game. still open to int through whispers, but my responses may be delayed
 
 ─── ⋆⋅☆⋅⋆ ───
+
 **misc. statuses you may see in my name**
 
 –☆ iwc/iwec - interact with caution/interact with extra caution
