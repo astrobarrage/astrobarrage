@@ -12,6 +12,8 @@
 
 –☆ i don't roleplay on pt (outside of silly bits with friends), so please don't ask me to 
 
+─── ⋆⋅☆⋅⋆ ───
+
 **statuses**
 
 –☆ online - open to int, but may be offtab
