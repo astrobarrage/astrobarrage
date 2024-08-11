@@ -1,6 +1,6 @@
 **info!!**
 
-–☆ i mostly hang around the rblx/p! area. you may find me in the osc area sometimes too
+–☆ i mostly hang around the rblx/p! and osc area
 
 –☆ whisper to interact because i'm most likely offtab unless i'm actively in a conversation
 
