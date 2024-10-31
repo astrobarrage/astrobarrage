@@ -1,6 +1,6 @@
 **info!!**
 
-–☆ i mostly hang around the rblx/p! and osc areas
+–☆ i mostly hang around the rblx/p!
 
 –☆ whisper to interact because i'm most likely offtab unless i'm actively in a conversation
 
@@ -8,7 +8,7 @@
 
 –☆ please don't take heavy inspo/copy my skins
 
-–☆ i block/hide freely. don't be weird towards me and we're cool :3
+–☆ i block/hide freely. don't be weird towards me and we're cool
 
 –☆ i don't roleplay on pt (outside of silly bits with friends), so please don't ask me to 
 
