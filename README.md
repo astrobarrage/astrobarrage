@@ -1,6 +1,6 @@
 **info!!**
 
-–☆ i mostly hang around the rblx/p!
+–☆ i mostly hang around the rblx/p! area, but i may be elsewhere if i'm with friends
 
 –☆ whisper to interact because i'm most likely offtab unless i'm actively in a conversation
 
@@ -29,5 +29,3 @@
 –☆ iwc/iwec - interact with caution/interact with extra caution
 
 –☆ dniuc - do not interact unless close
-
-–☆ sv/nv - semiverbal/nonverbal
