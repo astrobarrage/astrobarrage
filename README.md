@@ -1,12 +1,12 @@
 **info!!**
 
-✧ i mostly hang around the rblx/p! area, but i may be elsewhere if i'm with friends
+✧ i mostly hang around the rblx area, but i may be elsewhere if i'm with friends
 
 ✧ whisper to interact because i'm most likely offtab unless i'm actively in a conversation
 
 ✧ crowns are always welcome! i also enjoy giving crowns to people :D
 
-✧ please don't take heavy inspo/copy my skins
+✧ please don't take heavy inspo/copy my skins without permission
 
 ✧ i block/hide freely. don't be weird towards me and we're cool
 
