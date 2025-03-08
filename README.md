@@ -20,4 +20,4 @@
 
 <div align="center">
   
-###### _"And all I ever want it breaking me apart," I said to the thing that I once was._
+###### _"And all I ever want is breaking me apart," I said to the thing that I once was._
