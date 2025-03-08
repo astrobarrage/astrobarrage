@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=astrobarrage&color=26407b&label=☾+cultists&abbreviated=true)           
+　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=astrobarrage&color=0202fe&label=☾+cultists&abbreviated=true)           
 ![](https://cdn.discordapp.com/attachments/995111734891270185/1345881143064530994/twotime_photos.png?ex=67c628fd&is=67c4d77d&hm=c458161ecb2bf9ee0ecde43ae0f1d9851804a503d58ed89ea1198140bf4173f5&)
 
 ![](https://files.catbox.moe/cq04rc.png)
