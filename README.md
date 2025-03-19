@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<sub>[atabook](https://astrobarrage.atabook.org/) ❈ rentry (wip)[]() ❈ [pronouns](https://en.pronouns.page/@astrobarrage)<sub>
+<sub>[atabook](https://astrobarrage.atabook.org/) ❈ rentry (wip)[]() ❈ [pronouns](https://pronouns.cc/@astrobarrage)<sub>
 
 <div align="center">
 
