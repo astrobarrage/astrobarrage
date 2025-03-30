@@ -4,7 +4,7 @@
 
 <div align="center">
 
-###### _"And all I want is just a little love," I said in purrs under the palms._
+###### _"it's textbook repressive behavior!"_
 
 <div align="center">
 
@@ -20,4 +20,4 @@
 
 <div align="center">
   
-###### _"And all I ever want is breaking me apart," I said to the thing that I once was._
+###### _"bow down to me, i'm your savior!"_
