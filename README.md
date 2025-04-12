@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<sub>[atabook](https://astrobarrage.atabook.org/) ❈ [rentry](https://rentry.co/firecrackerz) ❈ [pronouns](https://pronouns.cc/@astrobarrage)<sub>
+<sub>[atabook](https://astrobarrage.atabook.org/) ❈ [rentry](https://rentry.co/firecrackerz) ❈ [pronouns](https://pronouns.cc/@astrobarrage)<sub> ❈ [guns.lol](https://guns.lol/astrobarrage)
 
 <div align="center">
 
