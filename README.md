@@ -4,11 +4,11 @@
 
 <div align="center">
 
-###### _"it's textbook repressive behavior!"_
+###### _"A bird in the hand is worth two in the bush."_
 
 <div align="center">
 
-<sub>[atabook](https://astrobarrage.atabook.org/) ❈ [rentry](https://rentry.co/firecrackerz) ❈ [pronouns](https://en.pronouns.page/@astrobarrage) ❈ [guns.lol](https://guns.lol/astrobarrage)<sub>
+<sub>[atabook](https://astrobarrage.atabook.org/) ❈ [rentry](https://rentry.co/firecrackerz) ❈ [pronouns](https://pronouns.cc/@astrobarrage)<sub>
 
 <div align="center">
 
@@ -20,4 +20,5 @@
 
 <div align="center">
   
-###### _"bow down to me, i'm your savior!"_
+###### _"But does that philosophy allow you to live life to the fullest?"_
+
