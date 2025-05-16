@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<sub>[atabook](https://astrobarrage.atabook.org/) [guns.lol](https://guns.lol/astrobarrage) [pronouns](https://pronouns.cc/@astrobarrage) [rentry](https://rentry.co/firecrackerz) [strawpage](https://aetherridge.straw.page/)<sub>
+<sub>[atabook](https://astrobarrage.atabook.org/) [rentry](https://rentry.co/firecrackerz) [pronouns](https://pronouns.cc/@astrobarrage)<sub>
 
 <div align="center">
 
