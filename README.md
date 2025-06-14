@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=astrobarrage&color=0202fe&label=☾+cultists&abbreviated=true)           
+![](https://komarev.com/ghpvc/?username=astrobarrage&color=dcad48&label=☀︎)           
 
 <div align="center">
 
@@ -8,7 +8,7 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/cq04rc.png)
+![](https://i.postimg.cc/05c1ZWY2/tellymon-resized.png)
 
 <div align="center">
   
