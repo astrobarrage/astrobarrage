@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<sub> sign my [atabook](https://astrobarrage.atabook.org/), read my [rentry](https://rentry.co/firecrackerz), or check out my [prns page](https://pronouns.cc/@astrobarrage)!
+<sub> sign my [atabook](https://astrobarrage.atabook.org/), read my [rentry](https://rentry.co/firecrackerz), and check out my [prns page](https://pronouns.cc/@astrobarrage)!
 
 <div align="center">
 
