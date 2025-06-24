@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<sub> sign my [atabook](https://astrobarrage.atabook.org/), read my [rentry](https://rentry.co/firecrackerz), and check out my [prns page](https://pronouns.cc/@astrobarrage)!
+<sub> sign my [atabook](https://astrobarrage.atabook.org/), read my [rentry](https://rentry.co/firecrackerz), and check out my [prns page](https://pronouns.cc/@astrobarrage)! you should definitely go attack me on [art fight](https://artfight.net/~astrobarrage) too >:)
 
 <div align="center">
 
