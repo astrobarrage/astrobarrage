@@ -8,7 +8,7 @@
 
 <div align="center">
 
-![](https://i.postimg.cc/05c1ZWY2/tellymon-resized.png)
+![](https://i.postimg.cc/sgBvxXjp/pizzaburger-again.png)
 
 <div align="center">
   
