@@ -6,6 +6,8 @@
 
 <sub> sign my [atabook](https://astrobarrage.atabook.org/), read my [rentry](https://rentry.co/firecrackerz), and check out my [prns page](https://pronouns.cc/@astrobarrage)! you should definitely go attack me on [art fight](https://artfight.net/~astrobarrage) too >:)
 
+<sub> c+h is always fine if i'm sitting alone :D cudcomf!! please w2i since i'm usually offtab 
+
 <div align="center">
 
 ![](https://i.postimg.cc/sgBvxXjp/pizzaburger-again.png)
