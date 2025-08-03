@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<sub> sign my [atabook](https://astrobarrage.atabook.org/) and read my [rentry](https://rentry.co/firecrackerz)!
+<sub> [atabook](https://astrobarrage.atabook.org/) [rentry](https://rentry.co/firecrackerz) [strawpage](https://astrobarrage.straw.page/)
 
 <sub> c+h is always fine if i'm sitting alone :D cudcomf!! please w2i since i'm usually offtab 
 
