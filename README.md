@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=astrobarrage&color=4c4765&label=customers‎ ✦)           
+![](https://komarev.com/ghpvc/?username=astrobarrage&color=4c4765&label=✦)           
 
 <div align="center">
 
