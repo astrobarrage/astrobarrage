@@ -13,4 +13,6 @@ astro/avis or my pony name. any prns ㅤminor. big fan of all things roblox w/ s
 
 <div align="center">
 
+<div align="center">
+
 c+h friendly if i'm alone!! w2i by default. dnc - ask for inspo. **DNI proship, endos, td/tt, other weirdos**
