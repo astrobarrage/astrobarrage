@@ -18,4 +18,4 @@ astro/avis or my pony name. any prns ㅤminor. big fan of all things roblox w/ s
 
 c+h friendly if i'm alone!! w2i by default. dnc - ask for inspo. **DNI proship, endos, td/tt, other weirdos**
 
-<sub>ac — © mpils, nam3le22, kuqii, iryou</sub>
+<sub>© mpils, nam3le22, kuqii, iryou</sub>
