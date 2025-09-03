@@ -8,7 +8,7 @@
 
 ![](https://i.postimg.cc/QMW2FLgq/77noli-banner.gif)
 
-<a href="https://files.catbox.moe/jz7s04.png" id=""><img align="left" src="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" class="fr-fil fr-dii"></a> 
+<a href="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" id=""><img align="left" src="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" class="fr-fil fr-dii"></a> 
 <div align="left"> astro/avis or my pony name. any prns ㅤminor. big fan of all things roblox w/ some other stuff on the side (˶ᵔ ᵕ ᵔ˶)
   
 <p></p>
