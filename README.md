@@ -13,7 +13,7 @@
   
 <p></p>
   
-<div align=left> c+h friendly if i'm alone!! w2i by default. dnc/ask for inspo. DNI proship, endos, td/tt, other weirdos
+<div align=left> c+h friendly if i'm alone!! w2i by default. dnc/ask for inspo. DNI proship, endos, other weirdos
   
 <p></p>
 <div align="center">
