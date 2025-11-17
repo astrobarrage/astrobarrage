@@ -19,3 +19,9 @@
 <div align="center">
 
 <sub>© mpils, nam3le22, kuqii, iryou</sub>
+
+<p></p>
+
+https://github.com/user-attachments/assets/9d04a81b-538b-4df2-a980-21e11cc779d5
+
+
