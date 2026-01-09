@@ -9,7 +9,7 @@
 ![](https://i.postimg.cc/QMW2FLgq/77noli-banner.gif)
 
 <a href="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" id=""><img align="left" src="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" class="fr-fil fr-dii"></a> 
-<div align="left"> call me astro or whoever my pony is. any prns 17. big fan of all things roblox, rain world, & pokemon (˶ᵔ ᵕ ᵔ˶)
+<div align="left"> call me astro or whoever my pony is. he/she 17. big fan of all things roblox, rain world, & pokemon (˶ᵔ ᵕ ᵔ˶)
   
 <p></p>
   
