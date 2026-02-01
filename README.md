@@ -11,10 +11,11 @@
 <a href="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" id=""><img align="left" src="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" class="fr-fil fr-dii"></a> 
 <div align=left> call me astro or whoever my pony is. he/she 17. big fan of all things roblox, rain world, & pokemon (˶ᵔ ᵕ ᵔ˶) the pitt too if anyone fw that
 <div align=left> i love many args thumbsup .. aregect, brandonworks, itzskeetplayz, rochas313, seildirectory, etc.
+<div align=left> no my roblox skins aren't forsaken i don't want to be associated with that bumass fandom
   
 <p></p>
   
-<div align=left> c+h friendly if i'm alone!! w2i by default. dnc/ask for inspo. DNI proship, endos, other weirdos
+<div align=left> c+h freely if i'm alone!! w2i by default. dnc/no heavy inspo pls. DNI proship, endos, other weirdos
   
 <p></p>
 <div align="center">
