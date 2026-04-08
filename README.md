@@ -17,7 +17,7 @@
   
 <p></p>
   
-<div align=left> c+h freely if i'm alone!! w2i by default + no heavy inspo pls. DNI proship, endos, other weirdos
+<div align=left> c+h freely if i'm alone!! w2i by default + no heavy inspo pls. DNI proship/neutral, endos, other weirdos
   
 <p></p>
 <div align="center">
