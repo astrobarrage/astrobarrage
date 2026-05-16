@@ -9,11 +9,11 @@
 ![](https://i.postimg.cc/QMW2FLgq/77noli-banner.gif)
 
 <a href="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" id=""><img align="left" src="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" class="fr-fil fr-dii"></a> 
-<div align=left> call me astro or whoever my pony is. he/she 17 fil. big fan of all things roblox (no i don't play/support forsaken), rain world, pokémon, and minecraft (˶ᵔ ᵕ ᵔ˶) along with lots of other media + my ocs. martial artist and psychology geek.
+<div align=left> call me astro or whoever my pony is. he/she 17 fil. big fan of all things roblox (no i don't play/support problematic games), rain world, pokémon, minecraft, and tomodachi life (˶ᵔ ᵕ ᵔ˶) along with lots of other media + my ocs. i like psychology a lot (plus typology since 2022 ok? ok)
 
 <p></p>
   
-<div align=left> i mainly just afk in this game if i'm not actively interacting with someone, but feel free to shoot me a whisper if you wanna chat ٩(ˊᗜˋ*)و !! c+h freely if i'm alone, w2i by default + no heavy inspo pls. DNI pro/darkship, endos, etc.
+<div align=left> i mainly just afk in this game if i'm not actively interacting with someone, but feel free to shoot me a whisper if you wanna chat ٩(ˊᗜˋ*)و !! c+h freely if i'm alone, w2i by default + no heavy inspo pls. DNI proship, endos, etc.
   
 <p></p>
 <div align="center">
