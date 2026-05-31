@@ -8,7 +8,7 @@
 
 ![](https://i.postimg.cc/QMW2FLgq/77noli-banner.gif)
 
-<a href="https://i.postimg.cc/pr7mXXZJ/nolicustom.png" id=""><img align="left" src="https://i.postimg.cc/FRb3sRYX/104412948-x-S5-Y1-ARre-Z87-PRW-1.png" class="fr-fil fr-dii"></a> 
+<a href="https://i.postimg.cc/pr7mXXZJ/nolicustom.png" id=""><img align="left" src="https://i.postimg.cc/pr7mXXZJ/nolicustom.png" class="fr-fil fr-dii"></a> 
 <div align=left> call me astro or whoever my pony is. big fan of all things roblox (no i don't play/support problematic games), rain world, pokémon, minecraft, and tomodachi life (˶ᵔ ᵕ ᵔ˶) along with lots of other media + my ocs. i like psychology a lot (plus typology since 2022 ok? ok)
 
 <p></p>
