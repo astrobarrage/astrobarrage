@@ -14,7 +14,7 @@
          style="width:150px; height:auto;"
          class="fr-fil fr-dii">
 </a>
-<div align=left> call me astro or whoever my pony is. big fan of all things roblox (no i don't play/support problematic games), rain world, pokémon, minecraft, and tomodachi life (˶ᵔ ᵕ ᵔ˶) along with lots of other media + my ocs. i like psychology a lot (plus typology since 2022 ok? ok)
+<div align=left> call me astro or whoever my pony is. really into mc rn despite my layout LOL but also a big fan of all things roblox (no i don't play/support problematic games), rain world, pokémon, and tomodachi life (˶ᵔ ᵕ ᵔ˶) along with lots of other media + my ocs. i like psychology a lot (plus typology since 2022 ok? ok)
 
 <p></p>
   
