@@ -1,16 +1,18 @@
 <div align="center">        
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=100&color=4C4765&center=true&multiline=true&repeat=false&width=750&height=100&lines=Welcome+to+my+shop!;Just+know+that+everything's+a+bit+pricey+around+here%2C;so%2C+if+you+touch+something+and+you+break+it%2C+you're+buying+it.)](https://git.io/typing-svg)
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&weight=200&duration=1500&pause=1000&color=8F9D98&center=true&multiline=true&repeat=false&width=700&height=150&lines=Wemmbu.+Wemmbu.+Wemmbu.+WEMMBU.;All+you+have+to+do+IS+THROW+A+ENDER+PEARL+THROUGH+THE+PORTAL!;AN+ENDER+PEARL.+THAT+GOES+THROUGH+THE+PORTAL!;HIS+SPAWN+IS+TRAPPED+THERE%3F!;HIS+SPAWN'S+IN+THE+FARLANDS+OR+WHATEVER%3F%3F+;THROW+IT+THROUGH+AND+HAVE+HIM+RESET." alt="Typing SVG" /></a>
+
+![]()
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=astrobarrage&color=4c4765&label=players+✦+)   
+![](https://komarev.com/ghpvc/?username=astrobarrage&color=2d3339&label=players+✦+)   
 
-![](https://f2.toyhou.se/file/f2-toyhou-se/images/123613409_ZBlJerQ7Biy3Y8Y.gif)
+![](https://i.postimg.cc/zfQT88tG/delete.gif)
 
-<a href="https://i.postimg.cc/pr7mXXZJ/nolicustom.png">
+<a href="https://i.postimg.cc/SRF8YVpY/delete.gif">
     <img align="left"
-         src="https://f2.toyhou.se/file/f2-toyhou-se/images/123622022_7juCo2YM21OTHSI.gif?1784061417"
+         src="https://i.postimg.cc/SRF8YVpY/delete.gif"
          style="width:150px; height:auto;"
          class="fr-fil fr-dii">
 </a>
