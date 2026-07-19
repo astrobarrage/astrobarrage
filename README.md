@@ -4,17 +4,17 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=astrobarrage&color=4c4765&label=customers+✦+)   
+![](https://komarev.com/ghpvc/?username=astrobarrage&color=4c4765&label=players+✦+)   
 
-![](https://i.postimg.cc/QMW2FLgq/77noli-banner.gif)
+![](https://f2.toyhou.se/file/f2-toyhou-se/images/123613409_ZBlJerQ7Biy3Y8Y.gif)
 
 <a href="https://i.postimg.cc/pr7mXXZJ/nolicustom.png">
     <img align="left"
-         src="https://i.postimg.cc/pr7mXXZJ/nolicustom.png"
+         src="https://f2.toyhou.se/file/f2-toyhou-se/images/123622022_7juCo2YM21OTHSI.gif?1784061417"
          style="width:150px; height:auto;"
          class="fr-fil fr-dii">
 </a>
-<div align=left> call me astro or whoever my pony is. really into mc rn despite my layout LOL but also a big fan of all things roblox (no i don't play/support problematic games), rain world, pokémon, and tomodachi life (˶ᵔ ᵕ ᵔ˶) along with lots of other media + my ocs. i like psychology a lot (plus typology since 2022 ok? ok)
+<div align=left> call me astro or whoever my pony is. 18 he/she fil-am. i'm currently very into mcyt (state, uu, and d&d), but i also like roblox (fandom is kinda on thin ice but eh), rain world, pokémon, and a ton of other stuff (˶ᵔ ᵕ ᵔ˶) i play, draw, practice martial arts, and study psychology and neuroscience, so feel free to yap to me about any of those things cause i like em!
 
 <p></p>
   
@@ -23,9 +23,5 @@
 <p></p>
 <div align="center">
 
-<sub>© mpils, nam3le22, kuqii, iryou</sub>
-
-<p></p>
-
-https://github.com/user-attachments/assets/9d04a81b-538b-4df2-a980-21e11cc779d5
+<sub>© alan_etsky, nyancordat25, sammyylol</sub>
 
