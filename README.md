@@ -18,7 +18,7 @@
 
 <p></p>
   
-<div align=left> i'm usually offtab, but free to shoot me a whisper if you wanna chat ٩(ˊᗜˋ*)و !! c+h freely if i'm alone, w2i by default + no heavy inspo pls. DNI proship, endos, boundary breakers, etc.
+<div align=left> i'm usually offtab, but free to shoot me a whisper if you wanna chat ٩(ˊᗜˋ*)و !! c+h freely if i'm alone + no heavy inspo pls. DNI proship, endos, boundary breakers, etc.
   
 <p></p>
 <div align="center">
