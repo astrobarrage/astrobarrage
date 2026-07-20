@@ -11,10 +11,10 @@
 <a href="https://i.postimg.cc/SRF8YVpY/delete.gif">
     <img align="left"
          src="https://i.postimg.cc/SRF8YVpY/delete.gif"
-         style="width:250px; height:auto;"
+         style="width:150px; height:auto;"
          class="fr-fil fr-dii">
 </a>
-<div align=left> call me astro or whoever my pony is. 18 he/she fil-am. i'm currently very into mcyt (state, uu, and d&d), but i also like roblox (fandom is kinda on thin ice but eh), rain world, pokémon, and a ton of other stuff (˶ᵔ ᵕ ᵔ˶) i play, draw, practice martial arts, and study psychology and neuroscience, so feel free to yap to me about any of those things cause i like em!
+<div align=left> call me astro or whoever my pony is. 18 he/she fil-am. i'm currently very into mcyt (state, uu, and d&d), but i also like roblox (fandoms iwec), rain world, pokémon, and a ton of other stuff (˶ᵔ ᵕ ᵔ˶)
 
 <p></p>
   
