@@ -11,7 +11,7 @@
 <a href="https://i.postimg.cc/SRF8YVpY/delete.gif">
     <img align="left"
          src="https://i.postimg.cc/SRF8YVpY/delete.gif"
-         style="width:150px; height:auto;"
+         style="width:200px; height:auto;"
          class="fr-fil fr-dii">
 </a>
 <div align=left> call me astro or whoever my pony is. 18 he/she fil-am. i'm currently very into mcyt (state, uu, and d&d), but i also like rblx (fandoms iwec), rw, pkmn, and a ton of other stuff (˶ᵔ ᵕ ᵔ˶)
