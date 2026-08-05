@@ -35,5 +35,5 @@ $${\color{#8A5582}{i}}$$
 $${\color{#8A556E}{block}}$$
 $${\color{#8A556E}{freely}}$$
 <br/>
-<a href="https://rentry.co/firecrackerz">ext</a>
+<a href="https://astrobarrage.atabook.org">ata</a>　　<a href="https://rentry.co/firecrackerz">rentry</a>
 
