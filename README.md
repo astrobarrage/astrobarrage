@@ -10,15 +10,30 @@
 
 ![]()
 
-〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro 　or　pony　name
+$${\color{#77558A}{〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro}}$$
+$${\color{#8A5582}{or}}$$
+$${\color{#8A556E}{pony name}}$$
 <br/>
-he / she　꒱　　18　　⊹ ࣪ ˖　fil-am
+$${\color{#77558A}{he / she}}$$　
+$${\color{#8A5582}{꒱}}$$　　
+$${\color{#8A5582}{18}}$$　　
+$${\color{#8A556E}{⊹ ࣪ ˖}}$$　
+$${\color{#8A556E}{fil-am}}$$
 <br/>
-w2i　&　c+h freely　unless　with　friends
+$${\color{#77558A}{w2i}}$$　
+$${\color{#77558A}{and}}$$　
+$${\color{#8A5582}{c+h}}$$　
+$${\color{#8A5582}{freely}}$$　
+$${\color{#8A556E}{unless}}$$
+$${\color{#8A556E}{w/}}$$
+$${\color{#8A556E}{friends}}$$
 <br/>
-basic　dni　;　i　block　freely
+$${\color{#77558A}{basic}}$$ 
+$${\color{#77558A}{dni}}$$　
+$${\color{#8A5582}{;}}$$　
+$${\color{#8A5582}{i}}$$ 
+$${\color{#8A556E}{block}}$$
+$${\color{#8A556E}{freely}}$$
 <br/>
 <a href="https://rentry.co/firecrackerz">ext</a>
-
-<sub>© ryve, reimshade, nyancordat25</sub>
 
