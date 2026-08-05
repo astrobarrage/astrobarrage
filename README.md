@@ -10,6 +10,10 @@
 
 ![]()
 
+$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#8A5560}know}$$ ㅤ</br>
+ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#8A5560}reward}$$ ㅤ</br>
+ ㅤ
+ 
 $${\color{#77558A}{〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro}}$$
 $${\color{#8A5582}{or}}$$
 $${\color{#8A556E}{pony name}}$$
@@ -38,4 +42,8 @@ $${\color{#8A556E}{freely}}$$
 <a href="https://astrobarrage.atabook.org">ata</a>　
 $${\color{#77558A}{+}}$$　
 <a href="https://rentry.co/firecrackerz">rentry</a>
-
+<br/>
+ ㅤ
+ 
+$${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#8A556E}said}$$ ㅤ</br>
+ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8A556E}your}$$ $${\color{#8A556E}new}$$ $${\color{#8A5560}place}$$ $${\color{#8A5560}❞}$$ ㅤ</br>
