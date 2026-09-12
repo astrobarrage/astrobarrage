@@ -45,7 +45,7 @@ $${\color{#77558A}{+}}$$　
 <br/>
 <details>
   <summary> ${\textsf{\color{#77558A}  }}$ </summary>
-         <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{'}}$$ $${\color{#8A556E}{flux!}}$$<br>
+         <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{&}}$$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> $${\color{#8A5582}{'}}$$ $${\color{#8A556E}{flux!}}$$<br>
 </details>
 </div>
  
