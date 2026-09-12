@@ -45,9 +45,9 @@ $${\color{#77558A}{+}}$$　
 <br/>
 <details>
   <summary> ${\textsf{\color{#77558A}  }}$ </summary>
-         <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{&}}$$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> $${\color{#8A5582}{'}}$$ $${\color{#8A556E}{flux!}}$$<br>
+         <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{and}}$$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> $${\color{#8A5582}{'}}$$ $${\color{#8A556E}{flux!}}$$<br>
 </details>
-</div>
+<br>
  
 $${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#8A556E}said}$$ ㅤ</br>
 ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8A556E}your}$$ $${\color{#8A556E}new}$$ $${\color{#8A5560}place}$$ $${\color{#8A5560}❞}$$ ㅤ</br>
