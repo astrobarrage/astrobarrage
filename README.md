@@ -1,7 +1,7 @@
 <div align="center">        
 
 <div align="center">
-
+  
 ![](https://komarev.com/ghpvc/?username=astrobarrage&color=a13c70&label=citizens+✦+)   
 
 ![](https://i.postimg.cc/cH7ScYM9/ezgif-com-gif-maker.gif)
@@ -13,7 +13,7 @@
 $${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#8A5560}know}$$ ㅤ</br>
 ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#8A5560}reward}$$ ㅤ</br>
  ㅤ
-
+ 
 $${\color{#77558A}{〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro}}$$
 $${\color{#8A5582}{or}}$$
 $${\color{#8A556E}{pony name}}$$
@@ -46,11 +46,10 @@ $${\color{#77558A}{+}}$$　
 <details>
   <summary> ${\textsf{\color{#77558A}  }}$ </summary>
          <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{and}}$$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> $${\color{#8A5582}{'}}$$ $${\color{#8A556E}{flux!}}$$<br>
-<a href="https://github.com/kaotown">@kaotown</a> $${\color{#8A5582}{'s}}$$ $${\color{#8A556E}{biggest}}$$ ${\color{#8A556E}{flux}}$$
-${\color{#8A556E}{fan!}}$$<br>
 <a href="https://github.com/kaotown">@kaotown</a> $${\color{#8A5582}{'s}}$$ $${\color{#8A556E}{biggest}}$$ ${\color{#8A556E}{flux}}$
 ${\color{#8A556E}{fan!}}$<br>
 </details>
 <br>
+ 
 $${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#8A556E}said}$$ ㅤ</br>
 ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8A556E}your}$$ $${\color{#8A556E}new}$$ $${\color{#8A5560}place}$$ $${\color{#8A5560}❞}$$ ㅤ</br>
