@@ -1,7 +1,7 @@
 <div align="center">        
 
 <div align="center">
-  
+
 ![](https://komarev.com/ghpvc/?username=astrobarrage&color=a13c70&label=citizens+✦+)   
 
 ![](https://i.postimg.cc/cH7ScYM9/ezgif-com-gif-maker.gif)
@@ -10,34 +10,34 @@
 
 ![]()
 
-$${\color{#733055}❝}$$ $${\color{#733055}you're}$$ $${\color{#BF5E93}the}$$ $${\color{#F291B5}edge}$$ ㅤ $${\color{#F291B5}of}$$ $${\color{#F2ACAC}all}$$ $${\color{#F2ACAC}i}$$ $${\color{#F2D9D0}know}$$ ㅤ</br>
-ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#8f5c86}reward}$$ ㅤ</br>
+$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#8A5560}know}$$ ㅤ</br>
+ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#8A5560}reward}$$ ㅤ</br>
  ㅤ
- 
+
 $${\color{#77558A}{〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro}}$$
 $${\color{#8A5582}{or}}$$
-$${\color{#8f5c86}{pony name}}$$
+$${\color{#8A556E}{pony name}}$$
 <br/>
 $${\color{#77558A}{he / she}}$$　
 $${\color{#8A5582}{꒱}}$$　　
 $${\color{#8A5582}{18}}$$　　
-$${\color{#8f5c86}{⊹ ࣪ ˖}}$$　
-$${\color{#9b678e}{fil-am}}$$
+$${\color{#8A556E}{⊹ ࣪ ˖}}$$　
+$${\color{#8A556E}{fil-am}}$$
 <br/>
 $${\color{#77558A}{w2i}}$$　
 $${\color{#77558A}{and}}$$　
 $${\color{#8A5582}{c+h}}$$　
 $${\color{#8A5582}{freely}}$$　
-$${\color{#8f5c86}{unless}}$$
-$${\color{#8f5c86}{w/}}$$
-$${\color{#9b678e}{friends}}$$
+$${\color{#8A556E}{unless}}$$
+$${\color{#8A556E}{w/}}$$
+$${\color{#8A556E}{friends}}$$
 <br/>
 $${\color{#77558A}{basic}}$$ 
 $${\color{#77558A}{dni}}$$　
 $${\color{#8A5582}{;}}$$　
 $${\color{#8A5582}{i}}$$ 
-$${\color{#8f5c86}{block}}$$
-$${\color{#9b678e}{freely}}$$
+$${\color{#8A556E}{block}}$$
+$${\color{#8A556E}{freely}}$$
 <br/>
 <a href="https://astrobarrage.atabook.org">ata</a>　
 $${\color{#77558A}{+}}$$　
@@ -45,11 +45,12 @@ $${\color{#77558A}{+}}$$　
 <br/>
 <details>
   <summary> ${\textsf{\color{#77558A}  }}$ </summary>
-         <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{and}}$$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> $${\color{#8A5582}{'}}$$ $${\color{#8f5c86}{flux!}}$$<br>
-<a href="https://github.com/kaotown">@kaotown</a> $${\color{#8A5582}{'s}}$$ $${\color{#8f5c86}{biggest}}$$ ${\color{#8f5c86}{flux}}$
-${\color{#9b678e}{fan!}}$<br>
+         <a href="https://github.com/pt-of-awesomeness">@pt-of-awesomeness</a> $${\color{#8A5582}{and}}$$ <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> $${\color{#8A5582}{'}}$$ $${\color{#8A556E}{flux!}}$$<br>
+<a href="https://github.com/kaotown">@kaotown</a> $${\color{#8A5582}{'s}}$$ $${\color{#8A556E}{biggest}}$$ ${\color{#8A556E}{flux}}$$
+${\color{#8A556E}{fan!}}$$<br>
+<a href="https://github.com/kaotown">@kaotown</a> $${\color{#8A5582}{'s}}$$ $${\color{#8A556E}{biggest}}$$ ${\color{#8A556E}{flux}}$
+${\color{#8A556E}{fan!}}$<br>
 </details>
 <br>
- 
-$${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#8f5c86}said}$$ ㅤ</br>
-ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8f5c86}your}$$ $${\color{#8f5c86}new}$$ $${\color{#8f5c86}place}$$ $${\color{#8f5c86}❞}$$ ㅤ</br>
+$${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#8A556E}said}$$ ㅤ</br>
+ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8A556E}your}$$ $${\color{#8A556E}new}$$ $${\color{#8A5560}place}$$ $${\color{#8A5560}❞}$$ ㅤ</br>
