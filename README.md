@@ -10,7 +10,7 @@
 
 ![]()
 
-$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8f5c86}i}$$ $${\color{#bc5a8d}know}$$ ㅤ</br>
+$${\color{#733055}❝}$$ $${\color{#733055}you're}$$ $${\color{#BF5E93}the}$$ $${\color{#F291B5}edge}$$ ㅤ $${\color{#F291B5}of}$$ $${\color{#F2ACAC}all}$$ $${\color{#F2ACAC}i}$$ $${\color{#F2D9D0}know}$$ ㅤ</br>
 ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#8f5c86}reward}$$ ㅤ</br>
  ㅤ
  
