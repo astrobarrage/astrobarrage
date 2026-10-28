@@ -10,34 +10,34 @@
 
 ![]()
 
-$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#8A5560}know}$$ ㅤ</br>
-ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#8A5560}reward}$$ ㅤ</br>
+$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#fab2ab}know}$$ ㅤ</br>
+ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#fab2ab}reward}$$ ㅤ</br>
  ㅤ
  
 $${\color{#77558A}{〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro}}$$
 $${\color{#8A5582}{or}}$$
-$${\color{#8A556E}{pony name}}$$
+$${\color{#fab2ab}{pony name}}$$
 <br/>
 $${\color{#77558A}{he / she}}$$　
 $${\color{#8A5582}{꒱}}$$　　
 $${\color{#8A5582}{18}}$$　　
-$${\color{#8A556E}{⊹ ࣪ ˖}}$$　
-$${\color{#8A556E}{fil-am}}$$
+$${\color{#fab2ab}{⊹ ࣪ ˖}}$$　
+$${\color{#fab2ab}{fil-am}}$$
 <br/>
 $${\color{#77558A}{w2i}}$$　
 $${\color{#77558A}{and}}$$　
 $${\color{#8A5582}{c+h}}$$　
 $${\color{#8A5582}{freely}}$$　
-$${\color{#8A556E}{unless}}$$
-$${\color{#8A556E}{w/}}$$
-$${\color{#8A556E}{friends}}$$
+$${\color{#fab2ab}{unless}}$$
+$${\color{#fab2ab}{w/}}$$
+$${\color{#fab2ab}{friends}}$$
 <br/>
 $${\color{#77558A}{basic}}$$ 
 $${\color{#77558A}{dni}}$$　
 $${\color{#8A5582}{;}}$$　
 $${\color{#8A5582}{i}}$$ 
-$${\color{#8A556E}{block}}$$
-$${\color{#8A556E}{freely}}$$
+$${\color{#fab2ab}{block}}$$
+$${\color{#fab2ab}{freely}}$$
 <br/>
 <a href="https://astrobarrage.atabook.org">ata</a>　
 $${\color{#77558A}{+}}$$　
