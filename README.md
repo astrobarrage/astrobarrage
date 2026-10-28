@@ -10,34 +10,34 @@
 
 ![]()
 
-$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#fab2ab}know}$$ ㅤ</br>
-ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#fab2ab}reward}$$ ㅤ</br>
+$${\color{#57558A}❝}$$ $${\color{#57558A}you're}$$ $${\color{#63558A}the}$$ $${\color{#77558A}edge}$$ ㅤ $${\color{#7F558A}of}$$ $${\color{#8A5582}all}$$ $${\color{#8A556E}i}$$ $${\color{#965d8d}know}$$ ㅤ</br>
+ㅤ $${\color{#57558A}a}$$ $${\color{#63558A}high}$$ $${\color{#77558A}risk,}$$ ㅤ $${\color{#8A5582}high}$$ $${\color{#965d8d}reward}$$ ㅤ</br>
  ㅤ
  
 $${\color{#77558A}{〞( ᴗ͈ ˬ ᴗ͈ ) ഒ　astro}}$$
 $${\color{#8A5582}{or}}$$
-$${\color{#fab2ab}{pony name}}$$
+$${\color{#965d8d}{pony name}}$$
 <br/>
 $${\color{#77558A}{he / she}}$$　
 $${\color{#8A5582}{꒱}}$$　　
 $${\color{#8A5582}{18}}$$　　
-$${\color{#fab2ab}{⊹ ࣪ ˖}}$$　
-$${\color{#fab2ab}{fil-am}}$$
+$${\color{#965d8d}{⊹ ࣪ ˖}}$$　
+$${\color{#965d8d}{fil-am}}$$
 <br/>
 $${\color{#77558A}{w2i}}$$　
 $${\color{#77558A}{and}}$$　
 $${\color{#8A5582}{c+h}}$$　
 $${\color{#8A5582}{freely}}$$　
-$${\color{#fab2ab}{unless}}$$
-$${\color{#fab2ab}{w/}}$$
-$${\color{#fab2ab}{friends}}$$
+$${\color{#965d8d}{unless}}$$
+$${\color{#965d8d}{w/}}$$
+$${\color{#965d8d}{friends}}$$
 <br/>
 $${\color{#77558A}{basic}}$$ 
 $${\color{#77558A}{dni}}$$　
 $${\color{#8A5582}{;}}$$　
 $${\color{#8A5582}{i}}$$ 
-$${\color{#fab2ab}{block}}$$
-$${\color{#fab2ab}{freely}}$$
+$${\color{#965d8d}{block}}$$
+$${\color{#965d8d}{freely}}$$
 <br/>
 <a href="https://astrobarrage.atabook.org">ata</a>　
 $${\color{#77558A}{+}}$$　
@@ -51,5 +51,5 @@ ${\color{#8A556E}{fan!}}$<br>
 </details>
 <br>
  
-$${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#8A556E}said}$$ ㅤ</br>
-ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8A556E}your}$$ $${\color{#8A556E}new}$$ $${\color{#8A5560}place}$$ $${\color{#8A5560}❞}$$ ㅤ</br>
+$${\color{#57558A}at}$$ $${\color{#63558A}least,}$$ ㅤ $${\color{#77558A}that's}$$ $${\color{#7F558A}what}$$ $${\color{#8A5582}you}$$ $${\color{#965d8d}said}$$ ㅤ</br>
+ㅤ $${\color{#57558A}on}$$ $${\color{#63558A}the}$$ $${\color{#77558A}34th}$$ $${\color{#7F558A}floor}$$ ㅤ $${\color{#8A5582}of}$$ $${\color{#8A556E}your}$$ $${\color{#8A556E}new}$$ $${\color{#965d8d}place}$$ $${\color{#965d8d}❞}$$ ㅤ</br>
