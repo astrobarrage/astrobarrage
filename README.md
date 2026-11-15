@@ -1,4 +1,7 @@
-<div align="center">        
+<div align="center">     
+
+![](https://files.catbox.moe/uggr86.png) ![](https://files.catbox.moe/4r2hnd.png)
+guys can we please stop 1:1 copying my skins 😭 i literally allow inspo so there should be 0 reason to make an exact replica of my skin. wall of shame pls do not do this !!!
 
 <div align="center">
   
